@@ -12,6 +12,6 @@ im most likely to hide/block u if u bother my oomfs ; copy any of my skins
 
 
 
-![image alt](https://files.catbox.moe/0ikteb.jpg)
+![image alt](https://files.catbox.moe/fxhc3g.jpg)
 
 <img src="https://files.catbox.moe/tfkbwb.jpg" width="1900" height="140">
