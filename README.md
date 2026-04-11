@@ -6,9 +6,9 @@ please read, bc i wont repeat again!! i have hpd which means i often feel uncomf
 
 im currently 16 and this year im having my last exam!! i might not be online often due to excessive work. If you are under 14 please do not int w me /uf/ , even so i would probably still talk to you󠀠󠀠󠀠.
 
-im most likely to hide/block u if i find you annoying/problematic
+im most likely to hide/block u if u bother my oomfs ; copy any of my skins
 
-(and yes, im admitting to that i have a big ego. so i'd prbs argue randomly if im not pleased)
+
 
 ![image alt](https://files.catbox.moe/0ikteb.jpg)
 
