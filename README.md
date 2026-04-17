@@ -13,6 +13,8 @@ i use masc terms strictly. not in allat of fandoms, but you can still yap abt ur
 
 im admitting to that i have a huge ego, i lost lots of friends mostly bc of it, im currently trying to change, pls be patient w me.
 
+strwp n' prnspge is in wip!!
+
 
 
 ![image alt](https://files.catbox.moe/fxhc3g.jpg)
