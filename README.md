@@ -2,9 +2,13 @@
 
 # ᴿᵉᵃᵈ ᵇ⁴ ⁱⁿᵗᵉʳᵃᶜᵗⁱⁿᵍ . ᛝ
 
-work inprog......... stwp n prns pge wip
+die hard yumeshipper . youll most likely to be blocked if you copy any of my skins w/out perms.
+i feel excluded easily, pls dont void me❤❤
 
+i love cuddles! mostly unstated ones// any interaction is fine!! but im probably offtb so w2i at all times whn starting a convo.
 
+also a self taught artist! im not taking any comms rn ((on break))
+iluv this guyalot >>> @k4-b00m
 
 ![image alt](https://files.catbox.moe/fxhc3g.jpg)
 
