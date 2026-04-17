@@ -8,7 +8,11 @@ i feel excluded easily, pls dont void me❤❤
 i love cuddles! mostly unstated ones// any interaction is fine!! but im probably offtb so w2i at all times whn starting a convo.
 
 also a self taught artist! im not taking any comms rn ((on break))
-doing ponies comms 4 supporter ((tier 5))
+
+i use masc terms strictly. not in allat of fandoms, but you can still yap abt urs! i luv silly people , plS BMF ><
+im admitting to that i have a huge ego, i lost lots of friends mostly bc of it, im currently trying to change, pls be patient w me.
+
+
 
 ![image alt](https://files.catbox.moe/fxhc3g.jpg)
 
